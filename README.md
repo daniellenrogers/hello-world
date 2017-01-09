@@ -9,6 +9,6 @@ I hope to be a role model and inspire others to learn to code!
 
 As my admissions advisor always says... "Make today a great day!"
 
-Peace, Love and Joy!
+Peace, Love and Joy,
 
 Danielle Nicole Rogers
